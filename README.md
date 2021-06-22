@@ -5,8 +5,7 @@
 - 📫 Reach me at my twitter handle @aircia.
        I'm an avid Playstation gamer as well with the Ps app on my phone. Message my User Name: GhostDeRazgriz
        I am frequently on Discord with the handle GhostDeRazgriz#5118
-       I want to save my email for collabs so as to not flood my inbox, because I'm totally that popular and need to manage my social and work spaces.
-       (cries in corner)
+       I want to save my email for collabs so as to not flood my inbox because it does get flooded don't fact check that.
 
 <!---
 GhostDeRrazgriz/GhostDeRrazgriz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
